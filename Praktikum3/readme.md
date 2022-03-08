@@ -1,1 +1,1 @@
-Ivan S Harianja - 24060121120007 - Pertemuan 3
+Ivan S Harianja - 24060121120007 - Praktikum 3
